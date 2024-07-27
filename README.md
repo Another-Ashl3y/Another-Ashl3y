@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ashley
 - 👀 I’m interested in 3d stuff and music
-- 🌱 I’m currently learning 3d stuff
+- 🌱 I’m currently learning ai like a loser
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: ????
 
